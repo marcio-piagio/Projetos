@@ -3,7 +3,3 @@
 
 roger
 
-piagio
-
-
-rrrrrrytytuuuuuu
